@@ -1,0 +1,1 @@
+**Lord Lysander Valorus** is a male [[Human|Human]] from [[Toril|Toril]]. He is one half of the current leadership of [[The Green Tower|The Green Tower]].
