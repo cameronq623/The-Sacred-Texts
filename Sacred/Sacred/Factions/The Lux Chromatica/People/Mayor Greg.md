@@ -1,0 +1,1 @@
+**Mayor Greg** is the a male [[Kobold|Kobold]] from [[Toril|Toril]]. He is the current mayor of [[Irisia|Irisia]] and leader of [[The Yellow Tower|The Yellow Tower]].
