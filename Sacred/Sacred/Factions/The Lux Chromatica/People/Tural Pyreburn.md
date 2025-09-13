@@ -1,0 +1,1 @@
+**Tural Pyreburn** is a male [[Human|Human]] from [[Toril|Toril]]. He is the current leader of [[The White Tower|The White Tower]].
