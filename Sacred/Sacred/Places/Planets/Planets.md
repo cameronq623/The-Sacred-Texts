@@ -1,0 +1,16 @@
+Timeline distortions are common on these planets.
+
+- [[Earth|Earth]]
+- [[Toril|Toril]]
+- [[Golarion|Golarion]]
+- [[Absalom Station|Absalom Station]]
+- [[Aballon|Aballon]]
+- [[Castrovel|Castrovel]]
+- [[Akiton|Akiton]]
+- [[Verces|Verces]]
+- [[Eox|Eox]]
+- [[Triaxus|Triaxus]]
+- [[Liavara|Liavara]]
+- [[Bretheda|Bretheda]]
+- [[Apostae|Apostae]]
+- [[Aucturn|Aucturn]]
