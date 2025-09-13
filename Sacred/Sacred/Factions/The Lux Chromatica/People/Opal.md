@@ -1,0 +1,1 @@
+**Opal** is a female [[Human|Human]] from [[Golarion|Golarion]]. She is the current leader of [[The Iridescent Tower|The Iridescent Tower]].
