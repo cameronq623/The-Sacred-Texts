@@ -1,0 +1,1 @@
+**Scarlett Willow** is a female [[Dhampir|Dhampir]] from [[Golarion|Golarion]], twin sister to [[Violet Willow|Violet Willow]]. Current leader of [[The Red Tower|The Red Tower]].

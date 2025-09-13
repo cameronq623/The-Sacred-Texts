@@ -1,0 +1,1 @@
+**Lady Rosemary** is a female [[Halfling|Halfling]] from [[Toril|Toril]]. She is one half of the current leadership of [[The Green Tower|The Green Tower]].

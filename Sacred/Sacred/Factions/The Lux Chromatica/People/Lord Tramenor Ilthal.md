@@ -1,0 +1,1 @@
+**Lord Tramenor Ilthal** is a male [[Elf|Elf]] from [[Absalom Station|Absalom Station]]. He is the former leader of [[The Blue Tower|The Blue Tower]]. His current whereabouts and status are unknown.

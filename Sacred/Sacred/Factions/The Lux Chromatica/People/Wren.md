@@ -1,0 +1,1 @@
+**Wren** is a female [[Ifrit|Ifrit]] from [[Golarion|Golarion]]. She is the current leader of [[The Orange Tower|The Orange Tower]].
