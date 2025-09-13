@@ -1,0 +1,1 @@
+**Violet Willow** is a female [[Eladrin|Eladrin]] from [[Toril|Toril]], twin sister of [[Scarlett Willow|Scarlett Willow]]. She is current leader of [[The Violet Tower|The Violet Tower]].
